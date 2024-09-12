@@ -3,4 +3,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ [linktree](https://linktr.ee/senaizumi) ㅤㅤ[retrospring](https://retrospring.net/@senaizumi)ㅤㅤㅤ
 
-ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤoften off-tab,  sorry  💔
+ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ often off-tab,  sorry  💔
