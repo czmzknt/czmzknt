@@ -2,4 +2,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  [linktree](https://linktr.ee/senaizumi) ㅤㅤ[retrospring](https://retrospring.net/@senaizumi)ㅤㅤㅤ
 
-ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ" If anything's crazier than that,  i'd let 'ya manipulate me all you want. "
+ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤoften off-tab,  sorry  💔
