@@ -3,4 +3,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤ[linktree](https://linktr.ee/senaizumi) ㅤㅤㅤ[retrospring](https://retrospring.net/@AMERiCAN0), ㅤㅤ[neospring](https://neospring.org/@kanatayatonokami)ㅤㅤㅤㅤ[rentry](https://rentry.co/olivia) ㅤㅤㅤ
 
-ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ ㅤ ㅤㅤㅤ ㅤ often off-tab,  sorry  💔
+ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ ㅤ ㅤㅤㅤ ㅤ ㅤOften Off Tab,  please Whisper if wanting to Interact
