@@ -5,3 +5,4 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤ[linktree](https://linktr.ee/senaizumi) ㅤㅤㅤ[retrospring](https://retrospring.net/@AMERiCAN0), ㅤㅤ[neospring](https://neospring.org/@kanatayatonokami)ㅤㅤㅤㅤ[rentry](https://rentry.co/olivia) ㅤㅤㅤ
 
 ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤOften Off Tab,  please Whisper if wanting to Interact  ( unless in DNIUF )
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤFinally winning the PT addiction obby?!?!  what!! ㅤ( Semi IA ) 
