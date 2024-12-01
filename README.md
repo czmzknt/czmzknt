@@ -1,9 +1,7 @@
 
 
- ㅤ ㅤ ㅤ ㅤㅤ ㅤㅤ ㅤ ㅤ ㅤ                                                              ![blur_edges (22)](https://github.com/user-attachments/assets/0cd84411-49ab-49b8-9de3-3777b3f90a3f)
-
-
-
+ ㅤ ㅤ ㅤ ㅤㅤ ㅤㅤ ㅤ ㅤ ㅤ                                      
+                       ㅤ ㅤ ![blur_edges (22)](https://github.com/user-attachments/assets/0cd84411-49ab-49b8-9de3-3777b3f90a3f)
 ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ                    Rule the Stage fans pls hmu  
 
