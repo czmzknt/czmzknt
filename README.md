@@ -1,7 +1,7 @@
 
 
- ㅤ ㅤ ㅤ ㅤㅤ ㅤㅤ ㅤ ㅤ ㅤ                                      
-                       ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ![blur_edges (22)](https://github.com/user-attachments/assets/0cd84411-49ab-49b8-9de3-3777b3f90a3f)
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ![d4-hypnosis-microphone](https://github.com/user-attachments/assets/aea1d7bb-d2e8-4fe9-a01e-1a7a04e65fad)
+                       ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ 
 
 ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤRule the Stage fans pls hmu  ( I'LL KISS YOU /P IF YOU'RE A D4 FAN TOO )
