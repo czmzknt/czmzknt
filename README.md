@@ -7,7 +7,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[guns.lol](https://guns.lol/helterspider)  ㅤ [retrospring](https://retrospring.net/@tuxam)ㅤ ㅤ [rentry](https://rentry.co/olivia)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ" We're teammates,  not friends. "
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ" We're teammates,  not friends. "
 
 ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤOften Off Tab,  please Whisper if wanting to Interact  ( unless in DNIUF )
 
