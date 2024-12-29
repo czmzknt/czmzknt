@@ -5,7 +5,7 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[guns.lol](https://guns.lol/helterspider)  ㅤ [retrospring](https://retrospring.net/@tuxam)ㅤ ㅤ [rentry](https://rentry.co/olivia)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[guns.lol](https://guns.lol/helterspider)  ㅤ [retrospring](https://retrospring.net/@tuxam)ㅤ ㅤ [rentry](https://rentry.co/olivia)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ" We're teammates,  not friends. "
 
