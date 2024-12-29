@@ -13,7 +13,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤOur fates are linked; only one can survive
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[guns.lol](https://guns.lol/helterspider)  ㅤ [retrospring](https://retrospring.net/@tuxam)ㅤ ㅤ [rentry](https://rentry.co/olivia)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[guns.lol](https://guns.lol/helterspider)  ㅤ [retrospring](https://retrospring.net/@tuxam)ㅤ ㅤ [rentry](https://rentry.co/olivia)
 
 
 
