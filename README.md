@@ -7,7 +7,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[guns.lol](https://guns.lol/helterspider)ㅤ  ,, ㅤ [retrospring](https://retrospring.net/@tuxam)ㅤ ,,ㅤ [rentry](https://rentry.co/olivia)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤOften Off Tab,  despite DNIUF / P;  feel free to send Crowns!! I apperciate them.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤOften Off Tab,  despite DNIUF / P;  feel free to send Crowns!! I apperciate them.
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
