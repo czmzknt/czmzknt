@@ -2,7 +2,7 @@
 
 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ![blur_edges (53)](https://github.com/user-attachments/assets/82002d4f-548e-4660-bb58-95bc2fe04e13)
  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ 
-ㅤㅤㅤㅤㅤㅤ                   ㅤ ㅤ                    ㅤ ㅤ[guns.lol](https://guns.lol/helterspider)ㅤ  ,, ㅤ [neospring](https://neospring.org/@brutus)ㅤ ,,ㅤ [directory](https://rentry.co/d4)
+ㅤㅤㅤㅤㅤㅤ                   ㅤ ㅤ                    ㅤ ㅤ[guns.lol](https://guns.lol/helterspider)ㅤ  ,, ㅤ [neospring](https://neospring.org/@okanokaito)ㅤ ,,ㅤ [directory](https://rentry.co/d4)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤOften Off Tab,  despite DNIUF / P;  feel free to send Crowns!! I apperciate them.
                    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ 
